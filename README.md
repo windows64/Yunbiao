@@ -1,4 +1,4 @@
-# Yunbiao
+# Yunbiao Inc.
 
 https://www.iyunbiao.com/
 
