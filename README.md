@@ -1,4 +1,4 @@
-# Yunbiao Inc. latosoft
+# Yunbiao Inc. Latosoft
 
 https://www.iyunbiao.com/
 
